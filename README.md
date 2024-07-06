@@ -61,6 +61,7 @@
 
 > 患者端
 
+![GIF 2024-7-6 23-46-18](https://github.com/luooin/chinese-medicine/assets/85004172/224db63e-0736-4701-a4b5-24eca5028a3c)
 
 
 
